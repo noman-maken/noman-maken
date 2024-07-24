@@ -3,7 +3,7 @@
 
 ***Web Developer***
 
-Ulfat and Sons Heights, Block M Johar Town, Lahore, Pakistan
+Street No. 1, Qasim Pura Old Civil Line, Sargodha, Punjab 40100
 
 Cell # 0341-6902120 Email: <mnomanaslam6@gmail.com>
 
