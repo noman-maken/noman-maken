@@ -3,7 +3,7 @@
 
 ***Web Developer***
 
-Street No. 1, Qasim Pura Old Civil Line, Sargodha, Punjab 40100
+Street No. 1, Qasim Pura Old Civil Line, Sargodha, Punjab & House No 79B, Faisal Garden, UMT Road, Johar Town, Lahore Punjab
 
 Cell # 0341-6902120 Email: <mnomanaslam6@gmail.com>
 
