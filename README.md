@@ -136,7 +136,7 @@ For verification of my professional experience, please feel free to contact:
 
 Silven International
 
-\- Email: <silveninternationalsrl@gmail.com>
+\- Email: <hr@silveninternational.com>
 
 \- Phone: - +1 (829) 789-9047 - WhatsApp: +420 702 026 106
 
