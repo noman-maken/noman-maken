@@ -175,8 +175,6 @@ Visual Studio Code, Postman, Trello, Android Studio
 
 For verification of my professional experience, please feel free to contact:
 
-Silven International
-
 \- Email: <hr@visamtion.org>
 
 \- Phone: - 04232337053
@@ -246,7 +244,7 @@ For verification of my professional experience, please feel free to view my Five
 
 `		`Application Software 			Microsoft Office
 
-`		`Programming Languages		PHP, Laravel, SQL, PYTHON, TYPESCRIPT, JAVA
+`		`Programming Languages		NODEJS, PHP, Laravel, SQL, PYTHON, TYPESCRIPT, JAVA
 
 `		`API					Postman
 
